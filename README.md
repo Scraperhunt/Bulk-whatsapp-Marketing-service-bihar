@@ -1,4 +1,4 @@
-# Bulk-whatsapp-Marketing-service-bihar
+# Bulk-whatsapp-Marketing-service-india
 Boost your marketing with our Bulk WhatsApp Message Service! Send engaging messages with text, images, and PDFs across India
 Bulk WhatsApp Marketing Services in India – Send Bulk Messages Safely (2026 Guide)
 
